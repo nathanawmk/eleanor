@@ -11,7 +11,8 @@ Onto mummy's chest you were placed. How well you could latched to mummy for the 
 
 For the whole 10 months (40 weeks + 6), after all the Prof. Biswas visits, scans and prayers, 
 
-it culminated to your grand entry. 
+it culminated in your grand entry. 
+
 
 
 Into a perplexing time of human history you were born into. 
@@ -27,6 +28,7 @@ An unnecessary human tradegy of epic proportions that came with the inexorable r
 Everyone had to now wear a mask - it is difficult to imagine otherwise 
 
 Yet the origin of Covid-19 has not been determined (natural spillover or a lab-leak?)
+
 
 
 Perplexing the world it may be, 
