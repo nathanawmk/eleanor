@@ -1,33 +1,37 @@
 # eleanor
 Poetry dedicated to Eleanor Aw
 
-23 June 2021
+23 June 2021 16:41 
 
-you were born into this perplexing world.
+Out of mummy's comfortable womb, through the birth canal, you arrived at a perplexing place 
 
-Into a world that was battling a pandemic - Covid-19 - since 2019 
+full of strange faces behind masks, bright lights and the rush of cold air - 
 
-Subsequent waves of infection has swept away 3.9 million lives
+Onto mummy's chest you were placed. How well you could latched to mummy for the very first time! 
 
-Yet the origin of Covid-19 has not been determined (lab?)
+For the whole 10 months (40 weeks + 6), after all the Prof. Biswas visits, scans and prayers, 
 
-
-Into a perplexing ward full of faces behind mask you came
-
-where Mummy and Daddy were wearing mask.
+it culminated to your grand entry. 
 
 
+Into a perplexing time of human history you were born into. 
 
-For 10 months (40 weeks, Day 6), Daddy and Mummy was wondering how you look. 
+Against the backdrop of the once-in-a-century pandemic (Covid-19) 
 
-First thing that Daddy and Mummy said when we first saw you was "Thank God"
+Started in Wuhan, China in Nov 2019, waves of infection has swept away more than 3.99 million lives. 
 
-Took you 13.5 hours 
+To put that number in context: That is 70% of the Singapore population - perished.
 
-Many will wish for their children to be good-looking, healthy and intelligent.
+An unnecessary human tradegy of epic proportions that came with the inexorable rise of China
 
-To have a good life, that is.
+Everyone had to now wear a mask - it is difficult to imagine otherwise 
 
-Mummy and Daddy deepest wish for you is to personally know God and his Son, Jesus.
+Yet the origin of Covid-19 has not been determined (natural spillover or a lab-leak?)
 
-For knowing Him will unravel the perplexities of the world. Behind the mysteries of the universe and the pain, suffering, there you find God. 
+
+Perplexing the world it may be, 
+
+However perplexing the situation we may eventually find ourselves in,
+
+Don't forget we may be perplexed, but never in despair. 2 Cor 4:8
+
